@@ -1,1 +1,4 @@
-# Product-Grid-Template-2-Organic-Soft-Grid
+Hello there, this is Product Grid Template 1 – Modern Grid with Hover Card.
+Instagram: runvox
+Discord: runvox
+Discord Server: soon
